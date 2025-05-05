@@ -43,7 +43,7 @@ The theme setup may be very simply customizable, you may simply customise them o
 
 
 # **Download Sarkari Result Blogger Template**
-However, you cannot Download MultiNews DLE Template - codelist.cc Clone Theme for free. For this, you will have to pay some money only then you will be able to download this template.
+However, you cannot Download Sarkari Result Blogspot Template for free. For this, you will have to pay some money only then you will be able to download this template.
 If you are interested in purchasing MultiNews DLE Template - codelist.cc Website Template, then you can purchase this theme by clicking on the DOWNLOAD link given below and if you want to see the demo of this template, then you can also see the live demo of this theme by clicking on the PREVIEW link given below.
 
 * **[LIVE PREVIEW](https://sarkariresulths.blogspot.com/)**
